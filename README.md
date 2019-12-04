@@ -15,3 +15,7 @@ Homework #2
   Problem 2->https://drive.google.com/open?id=1bQZIHvY0HDVjsxKnTOSaxnTAdfwW1_lz
   
   Problem 3->https://drive.google.com/open?id=1HMJpkS6EbAdcu-2xuievSncpQ8dUaCZf
+
+Homework #3
+
+  Problem 1->https://drive.google.com/open?id=1i2hAJfvNC2mtwIK-OgroKcFdD4GeUjFN
